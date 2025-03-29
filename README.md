@@ -11,8 +11,7 @@
 
 
 
-
-2007, he/it, no dni i block freely, feel free to int and if im not responding you can always whisper!
+He/it/she, 2007, check out my straw.page in links!
 
 
 ![tumblr_3de5202019d07b9c9b274ef6d94a9bb2_b66ab269_100](https://github.com/user-attachments/assets/8cefb144-d423-4254-a25e-d172bfd8c2c7)
